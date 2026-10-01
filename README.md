@@ -71,5 +71,5 @@ Expected Graduation: 2027
 
 ## 🔗 Connect
 
-[LinkedIn](YOUR_LINKEDIN)
-[Email](mailto:YOUR_EMAIL)
+[LinkedIn](linkedin.com/in/mohamedgengeihy)
+[Email](mailto:mohamed.gengeihy@gmail.com)
